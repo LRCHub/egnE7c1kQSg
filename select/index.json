@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "ジュスティーヌゴート",
+  "base_artist": "LOLUET",
+  "createdAt": "2026-04-02T12:12:53.647696Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "ジュスティーヌゴート",
+      "artist": "LOLUET",
+      "has_synced": false,
+      "path": "select/pl_01_ジュスティーヌゴート_LOLUET.txt"
+    }
+  ]
+}
