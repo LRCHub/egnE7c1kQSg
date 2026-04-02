@@ -1,0 +1,55 @@
+# LOLUET – ジュスティーヌゴート
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+未だ freeze 視界は硬化した 怠惰だbreeze 感じて
+業を成す?
+棘がplease 求めて 訴えてる だけどscape いつまで
+も逃げてしまうんだね
+TRIP TRIP easyだ  hazy too crazy TRIP TRIP不品行
+な自業自得
+knock knock 気まぐれに しゃぶれや Dopehead 気の
+済むまま気分死 die 嗚呼
+Justine Justine Justine わからない? Justine
+Justine Justine 信じて ねえ
+Justine Justine Justine そんなに 貴方は私を知ら
+ない so
+Justine Justine Justine 下らねえ Justine Justine
+Justine 温かい
+Justine Justine Justine 回りだす 彼方はまだ死も
+映らない
+嗚呼 違う 違う 違う 君の所為だ 違う 違う 違う 好
+きだの乱用
+嫌い 嫌い 嫌い 映さないで 重なる心音
+融けて くるる 回り始めた 心 解けていく
+善も悪も知らない このまま何処までも 嗚呼;
+escape escape escape 陰りだす escape escape
+escapeいつまでか
+escape escape escape 同化した貴方に私は届かない
+ah
+escape escape escape 変われない escape escape
+escape どうして
+escape escape escape 最愛の 自分自身さえ 抱きし
+められない
+変わらない変われない It's not your fault you're
+feeling down for you?
+消えれない 消えたくない?  It's not your fault
+you're feeling down for ?
+TRIP TRIP dirtyな気分不甲斐ない  TRIP TRIP いつ
+まで お子様気分
+knock knock 知らぬ間に群がる Wanna be  気の済む
+まで 望んじゃって 嗚呼
+Justine Justine Justine わからない? Justine
+Justine Justine 信じて ねえ
+Justine Justine Justine そんなに 貴方は私を知ら
+ない so
+Justine Justine Justine 下らねえ Justine Justine
+Justine 温かい
+Justine Justine Justine 回りだす 彼方はまだ死も
+映らない
+未だ freeze 視界は硬化して 怠惰だbreeze 感じて
+時が経つ?
+棘がplease 求めて 訴えてる だけどscape いつの日
+か逃げ終えていた
+```
